@@ -1,4 +1,4 @@
-# Prominent-Stoelen-Prijzen-KORTINGEN
+# Prominent Stoelen Prijzen KORTINGEN
 
 Benieuwd naar de **prijzen van Prominent stoelen**?
 In dit overzicht ontdek je de meest gekozen modellen, hun vanafprijzen, én welke acties of kortingen er momenteel zijn. Of je nu op zoek bent naar een relaxstoel, sta-op stoel of een stijlvolle bank: hier vind je alle info op één plek.
